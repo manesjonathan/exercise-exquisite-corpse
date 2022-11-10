@@ -27,3 +27,5 @@ Elle espère néamoins, que le **Great Pumpkin** est heureux d'avoir pu manger s
 Un manque de connaissance de la langue de Shakespeare m'empêche de lui créer une aventure digne de ce nom ! 
 
 **HONTE A MOI** pauvre inculte que je suis ! 
+
+Perfect
