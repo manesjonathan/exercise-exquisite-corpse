@@ -21,3 +21,9 @@ So he started eating **ice cream** and *chili*
 Elle espère néamoins, que le **Great Pumpkin** est heureux d'avoir pu manger sa glace.
 
 ***MAIS*** peut-être que le prochain narrateur aura un bout d'histoire plus palpitant à _raconter_. 
+
+* *Une nouvelle fois*, la suite des aventures du **Great Pumpkin** ne seront pas établie.
+
+Un manque de connaissance de la langue de Shakespeare m'empeche de lui créer une aventure digne de ce nom ! 
+
+**HONTE A MOI** pauvre inculte que je suis ! 
